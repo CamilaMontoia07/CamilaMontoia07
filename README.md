@@ -1,7 +1,6 @@
-## Hi veyr 
+## oi mô 🪷
 
-<!--
-**CamilaMontoia07/CamilaMontoia07** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Meu nome é 👾 Camila 👾
 
 Here are some ideas to get you started:
 
