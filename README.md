@@ -1,4 +1,5 @@
 ## oi mô 🪷
+![](https://media.tenor.com/7D7rhF-T7WIAAAAM/pedro-pedro-flamengo.gif)
 Meu nome é 👾 Camila 👾
 
 - 🌱 I’m currently learning Alura
